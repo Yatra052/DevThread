@@ -18,6 +18,11 @@ Screenshots
 ![WhatsApp Image 2024-06-30 at 10 29 47 PM](https://github.com/Yatra052/DevThread/assets/108984857/1150113c-c8d6-4bfb-b266-5f70c735cdb8)
 
 
+
+
+![WhatsApp Image 2024-06-30 at 10 58 34 PM](https://github.com/Yatra052/DevThread/assets/108984857/f9f696a7-a3d9-4688-a15d-65c9a4de913e)
+
+
 ![WhatsApp Image 2024-06-30 at 10 28 29 PM](https://github.com/Yatra052/DevThread/assets/108984857/3a4102b5-1bde-448d-8d04-395533c064f9)
 
 
